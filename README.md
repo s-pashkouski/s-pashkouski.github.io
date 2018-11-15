@@ -1,1 +1,0 @@
-# s-pashkouski.github.io
